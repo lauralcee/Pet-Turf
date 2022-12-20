@@ -1,1 +1,2 @@
-# Pet-Turf
+# Pet Turf
+Pet turf will better control odors and ensure proper drainage compared to non-pet synthetic turf options. A few things to consider when browsing for the right pet turf for your family: The number of animals and their size – some [Pet Turf](https://www.go-turf.com/) products are more durable than others. Can Dogs Pee and Poop on Artificial Grass? Yes, dogs can pee and poop on artificial grass — just like they would on natural grass. The good news is that you will not have to clean urine from your artificial grass. It drains away in the same way as rainwater.
